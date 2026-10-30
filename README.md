@@ -1,0 +1,2 @@
+# Xusan
+XUsanbek yahshi bola
